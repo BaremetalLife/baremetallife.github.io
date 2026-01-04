@@ -1,0 +1,1 @@
+# baremetallife.github.io
